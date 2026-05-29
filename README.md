@@ -1,4 +1,6 @@
-My name is Abiodun. I am a huge hobbyist in developmental economics. Nice to meet you.
+Hi, My name is Abiodun. 
+I am a huge hobbyist in developmental economics. 
+Nice to meet you :).
 
 # Disclaimer
 
