@@ -24,7 +24,7 @@ They are less dependent on political patrons for employment, less vulnerable to 
 
 A weak middle class produces the opposite outcome.
 
-When salaries are delayed for months, households exhaust their savings and accumulate debt. When public schools deteriorate, families become dependent on expensive private alternatives. When healthcare systems collapse, citizens are forced to rely on personal networks rather than public institutions. When housing remains unaffordable, long-term economic security becomes increasingly difficult to achieve.
+When salaries & pensions are delayed for months, households exhaust their savings and accumulate debt. When public schools deteriorate, families become dependent on expensive private alternatives. When healthcare systems collapse, citizens are forced to rely on personal networks rather than public institutions. When housing remains unaffordable, long-term economic security becomes increasingly difficult to achieve.
 
 Across multiple Nigerian states and at various points in the country's history, prolonged salary arrears, pension backlogs, collapsing social infrastructure, and chronic underinvestment in public services have produced precisely these effects.
 
