@@ -1,4 +1,4 @@
-# Beyond Racism: The Class Dynamics Behind Anti-Nigerian Sentiment
+# Beyond Racism and Xenophobia: The Class Dynamics Behind Anti-Nigerian Sentiment
 
 A significant number of Nigerians believe they are profiled, disliked, or discriminated against abroad because of racism and xenophobia. While racism undoubtedly exists, I believe the reality is more complex and, in many ways, more troubling.
 
