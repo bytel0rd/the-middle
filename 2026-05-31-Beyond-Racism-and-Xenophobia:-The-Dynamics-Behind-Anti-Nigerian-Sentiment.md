@@ -46,7 +46,7 @@ Ironically, Nigeria suffers from many of the same class dynamics it often critic
 
 The difference is that these structures are not yet fully institutionalized.
 
-Nigeria remains one of the few societies where meaningful socio-economic mobility is still possible for many citizens. A person born into modest circumstances can still achieve significant economic advancement through education, entrepreneurship, or professional success.
+Nigeria remains one of the few societies where meaningful socio-economic mobility is still possible for many citizens and immigrants. A person born into modest circumstances can still achieve significant economic advancement through education, entrepreneurship, or professional success.
 
 However, this potential is increasingly threatened by corruption and institutional failure.
 
